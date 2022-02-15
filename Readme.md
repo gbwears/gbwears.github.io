@@ -1,1 +1,0 @@
-gbwears.github.io
